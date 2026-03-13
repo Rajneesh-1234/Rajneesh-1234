@@ -100,7 +100,7 @@ Hi 👋 I'm Rajneesh Kushwaha
 https://linkedin.com
 
 📧 Email  
-your-email@gmail.com
+rajnishkushwaha3757@gmail.com
 
 💻 GitHub  
 https://github.com/Rajneesh-1234
